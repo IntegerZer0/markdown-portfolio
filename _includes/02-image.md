@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+[Doge with glasses](https://i.kym-cdn.com/photos/images/facebook/000/581/410/bfa.png)
